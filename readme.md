@@ -6,4 +6,4 @@ jgjtoksjh
 hylgmkh
 jhjjh)
 
-[juhhu] (http:\\google.com)
+[juhhu] (http://google.com)
